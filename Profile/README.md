@@ -48,7 +48,7 @@ Starting your e-learning journey with HiStudy is straightforward:
 3. Add your courses, set up WooCommerce, and enable secure payment options.  
 4. Publish your site and start empowering learners!  
 
-👉 **[Download HiStudy WordPress Theme](https://nulledthemeslibrary.com)** and take the first step toward creating a world-class online education platform.  
+👉 **[Download HiStudy WordPress Theme](https://nulledthemeslibrary.com/histudy-theme-nulled-free-download/)** and take the first step toward creating a world-class online education platform.  
 
 
 ## 🌐 What Makes HiStudy Unique?  
@@ -69,5 +69,3 @@ HiStudy thrives on community feedback and contributions. If you have ideas to im
 ---
 
 HiStudy is your ultimate solution for creating a modern, user-friendly, and scalable online education platform. Take your educational vision to the next level today! 🚀  
-
-👉 **[Free Download HiStudy](https://nulledthemeslibrary.com)** now to start building your dream e-learning website.  
