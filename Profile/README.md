@@ -16,6 +16,9 @@ HiStudy simplifies the process of creating and managing online courses. It allow
 ### 2. Responsive and Accessible Design  
 A website built with HiStudy looks stunning on all devices. Whether visitors use a desktop, tablet, or smartphone, the responsive design ensures a seamless user experience.  
 
+### **[Download HiStudy WordPress Theme](https://nulledthemeslibrary.com/histudy-theme-nulled-free-download/)** 
+and take the first step toward creating a world-class online education platform.  
+
 ### 3. Easy Customisation  
 HiStudy includes a drag-and-drop page builder, giving you full control over your website’s appearance. Choose from pre-designed templates, adjust layouts, and add custom branding to create a unique site tailored to your vision.  
 
@@ -48,7 +51,6 @@ Starting your e-learning journey with HiStudy is straightforward:
 3. Add your courses, set up WooCommerce, and enable secure payment options.  
 4. Publish your site and start empowering learners!  
 
-👉 **[Download HiStudy WordPress Theme](https://nulledthemeslibrary.com/histudy-theme-nulled-free-download/)** and take the first step toward creating a world-class online education platform.  
 
 
 ## 🌐 What Makes HiStudy Unique?  
